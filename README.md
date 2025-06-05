@@ -208,5 +208,3 @@ Saya adalah seorang mahasiswa yang termotivasi dan antusias, berspesialisasi dal
 Discord Channel (GalaxyFamily): https://discord.gg/2jDAHeqXeQ
 Discord Private Message (DM): SilentGalaxy#5040
 نکته: برای اعضای Family Tag، نام کاربری به همراه تگ خانواده مشخص می‌شود: Name? | 𝓖𝓕
-
-فعالیت‌های اخیر (اختیاری)
